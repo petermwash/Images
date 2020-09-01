@@ -1,0 +1,1 @@
+![alt text for screen readers](WhatsApp Image 2020-08-31 at 20.12.12.jpeg "banner")
